@@ -12,4 +12,4 @@ Foi utilizado a IA integrada ao Premiere Pro, da Adobe
 O vídeo original que gravei estava na vertical e com meus olhos o tempo todo em um texto de apoio que escrevi. O objetivo foi deixá-lo na horizontal e com os olhos o mais fixo possível na câmera!
 
 ### 🚀 Resultados
-Case queira ver como está o vídeo, clique [aqui]([https://google.com](https://youtu.be/oW6opek-WDE?si=alNGk8WV1mEqMDgM))
+Case queira ver como está o vídeo, clique [aqui](https://youtu.be/oW6opek-WDE?si=alNGk8WV1mEqMDgM)
